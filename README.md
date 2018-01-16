@@ -1,1 +1,5 @@
 # hannad
+aHR0cHM6Ly9tZWdhLm56LyMhbGNWQXdDZ2I=
+IW5mc3o3Y0wyWnZxT0Z5NjJZTWJZV2ljbU1kYmhYV2E4bVg3R19JeFl0NFk=
+
+https://www.reddit.com/r/megalinks/comments/7os5qe/education_ngbook_2_the_complete_book_on_angular_5/
